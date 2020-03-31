@@ -1,7 +1,4 @@
 # ALAN PERDHANA TIMOR
-<br>
 # 07
-<br>
 # TI-2A
-<br>
 # 1841720187
